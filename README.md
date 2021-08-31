@@ -1,0 +1,2 @@
+# PSYSTATS7765-66
+GLIVAI Assignments
